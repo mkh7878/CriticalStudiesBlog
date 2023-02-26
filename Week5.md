@@ -1,3 +1,4 @@
+## Week 5
 I was not in class this day because my boyfriend had covid and I was worried I'd pass it on to other students. However, using what my friends told me about how the class was not well attended and then they went to an art gallery, I asked chat GPT to write a humourous poem about the experience:
 
 In a Master's class one day,
